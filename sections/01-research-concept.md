@@ -1,3 +1,2 @@
 # Research Concept & Direction
 
-asdfasdf
